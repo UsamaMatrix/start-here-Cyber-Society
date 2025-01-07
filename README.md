@@ -57,7 +57,7 @@ Our mission is to provide a safe space to support everyone on their journey to b
 - Society Faculty Head [@Mubshr07](https://github.com/Mubshr07)
 - Society President by [@Hassan Ali](https://github.com/#)
 - Society Vice President by [@Ahmed](https://github.com/#)
-- Society logo created by [@Muhammad Usama](https://github.com/#)
+- Society Strategist/Mentor [@Muhammad Usama](https://github.com/#)
 
 
 <br><br><br>
